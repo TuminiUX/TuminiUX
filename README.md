@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...inclusive open source data driven design 
 - 🌱 I’m currently learning ...SQL
 - 💞️ I’m looking to collaborate on ...Open source design and data related projects
-- 📫 How to reach me ...on twitter @tumini_xoxo
+- 📫 How to reach me ... tuminifubara@gmail.com
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...I cant skip 😆
 
